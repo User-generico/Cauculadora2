@@ -1,5 +1,5 @@
 Grupo:
-Isis S. P. & João MArcos S. H.
+Isis S. P. & João Marcos S. H.
 
 
 3º info 2021
